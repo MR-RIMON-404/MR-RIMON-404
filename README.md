@@ -1,4 +1,4 @@
-# Hi there 👋, my name is Alex Rimon
+# Hi there 👋, Itz me Alex Rimon
 # I am GitHub Readme Generator's creator
 
 
