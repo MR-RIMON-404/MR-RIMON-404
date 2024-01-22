@@ -19,7 +19,6 @@
 ![GitHub streak stats](https://streak-stats.demolab.com/?user=MR-RIMON-404)  
 
 
-<h3 align="left">Connect with me:**alexrimon143@gmail.com**</h3>
 <p align="left">
 </p>
 
