@@ -1,4 +1,4 @@
-# Hi there 👋, Itz me Alex Rimon
+# Hi there 👋, Itz me ALEX RIMON
 # I am GitHub Readme Generator's creator
 # DAD-OF-DEVIL😈
 
